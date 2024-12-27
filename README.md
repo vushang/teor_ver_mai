@@ -1,0 +1,1 @@
+# teor_ver_mai
